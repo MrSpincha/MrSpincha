@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MrSpincha
+- 👀 I’m interested in Leafs
+- 🌱 I’m currently learning basics of the coding adventure!
+- 📫 How to reach me just email me wmax7067@gmail.cm
